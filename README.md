@@ -1,5 +1,7 @@
 # 👋 Merhaba, ben Emrah!
 
+VIBE CODER :)
+
 💼 Emlak Danışmanı | 🏡 Gayrimenkul & Yatırım Uzmanı  
 🎥 Drone ve teknoloji meraklısı | 📸 Sosyal medya içerik üreticisi
 

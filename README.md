@@ -24,7 +24,7 @@ VIBE CODER :)
 
 ## 🌐 Bana Ulaş
 - 📩 E-mail: veysiemrah@gmail.com
-- 🌍 Website: www.sengez.me (Emlakçı olarak)
+- 🌍 Website: www.soframobil.com
 - 📷 Instagram: https://www.instagram.com/theronaerials/ (Drone ve sosyal medya içeriklerim)
 - 🎥 YouTube: https://www.youtube.com/@TheRonAerials (Drone çekimlerim)
 
